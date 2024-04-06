@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @halfamen
+- 👀 I’m interested in security
+- 🌱 I’m currently learning to admin network and system
+- 💞️ I’m looking to collaborate on API/AI
+- 📫 
+- 😄 
+- ⚡ Fun fact: enjoy surfing
